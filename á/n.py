@@ -1,1 +1,0 @@
-! [ảnh](https://github.com/tratara1612-spec/prog2005-BSE250042-NongPhuongTra/blob/5eb8084bc71134dde058f6d44d9ef92bbfaab31d/%E1%BA%A2nh%20ch%E1%BB%A5p%20m%C3%A0n%20h%C3%ACnh%202026-01-28%20155638.pngpng)
